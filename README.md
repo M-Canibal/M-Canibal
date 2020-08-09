@@ -7,5 +7,6 @@ I'm I'm a mechanical engineer with a focus on TI full stack developer;
 - 👯 I’m looking to collaborate on projects anda anything you need ;
 - 💬 Ask me about anything you want;
 - 📫 How to reach me: 
+    https://www.linkedin.com/in/matheus-canibal-11194b163/
 
 
