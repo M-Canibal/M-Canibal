@@ -8,6 +8,6 @@
 - 💬 Ask me about anything you want;
 - 📫 How to reach me: 
    - https://www.linkedin.com/in/matheus-canibal-11194b163/
-   - matheus.canibal@hotmail.com
+   - matheus.canibal95@gmail.com
 
 
